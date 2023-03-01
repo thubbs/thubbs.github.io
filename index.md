@@ -1,1 +1,1 @@
-Product management thoughts, ideas and provocations from Tom Hubbard-Green
+Product, design and organisations: thoughts, ideas and provocations
